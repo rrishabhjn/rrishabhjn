@@ -47,10 +47,10 @@ Here are a few projects that reflect my PM thinking, technical fluency, and will
 
 Outside of work, you’ll probably find me:
 
-- 🧗‍♂️ Chasing the next mountain — from the Rockies to the Himalayas.
+- 🌍 Traveling solo to places I’ve never been, asking strangers what makes them feel alive.
 - 🤿 Exploring the ocean — I’m a certified scuba diver with 35+ dives.
 - 🎶 Writing and mixing music — it helps me stay grounded and inspired.
-- 🌍 Traveling solo to places I’ve never been, asking strangers what makes them feel alive.
+- 🍵 Sipping a cup of Ginger Tea while reading a fiction book.
 - 💡 Helping small businesses in my hometown digitize and grow through automation and storytelling.
 
 ---
